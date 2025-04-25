@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on xiaomi,samsung,apple or other big companies
 - 📫 How to reach me beraterim141@gmail.com
 - 😄 Pronouns🧑‍🎓
-- ⚡ Fun fact:antony has same amount of world cup as ronaldo he is him
+- ⚡ Fun fact:
 
 <!---
 erimberat/erimberat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
